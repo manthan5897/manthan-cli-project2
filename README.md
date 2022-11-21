@@ -7,4 +7,4 @@ Here's an instruction for you:
 
 Above instruction will also be shown to you before you start with the first question.
 
-So, let's begin and get how well do you know me...!!!
+So, let's begin and get how well do you know about CRICKET...!!!
